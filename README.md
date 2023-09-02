@@ -1,1 +1,1 @@
-I make minecraft mods and greg
+Czech Java Programmer
